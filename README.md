@@ -25,6 +25,7 @@ No, this is not really about code development. Please share your favorite places
 ## Drinks
 * [Sky Lounge](http://www.skyloungeamsterdam.com/en/) - Good cocktails and a great view over Amsterdam :house: :cocktail:
 * [Hannekes Boom](http://www.hannekesboom.nl/) - Great location at the waterfront and great atmosphere
+* [BEER] - Who doesn't need it?
 
 
 
